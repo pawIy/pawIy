@@ -1,1 +1,1 @@
-<div align=center>Info —> &nbsp;<a href=https://pawlly.carrd.co>r r</a></div>
+<div align=center><a href=https://pawlly.carrd.co>Info</a></div>
